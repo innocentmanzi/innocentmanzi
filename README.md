@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **i.manzi@alustudent.com**
 
-- ⚡ Fun fact **I once solved a coding problem in my sleep. Apparently, my subconscious is a better programmer than my conscious mind.**
+- ⚡ Fun fact **I once solved a coding problem in my sleep. My subconscious is a better programmer than my conscious mind.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
